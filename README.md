@@ -65,4 +65,4 @@ Backend-focused developer specializing in building robust, secure, and clean RES
 ### 📫 Let's Connect
 
 *   **GitHub:** [@tejasdavande](https://github.com/tejasdavande)
-*   **Email:** [tejasdavande99@gmail.com](mailto:tejasdavande99@gmail.com)
+*   **Email:** [tejasdavande369@gmail.com](mailto:tejasdavande99@gmail.com)
